@@ -1,1 +1,0 @@
-# gestionlwanga_pro_version
